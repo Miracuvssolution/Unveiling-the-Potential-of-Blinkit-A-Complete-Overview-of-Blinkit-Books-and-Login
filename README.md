@@ -18,6 +18,6 @@ In conclusion, Blinkit is more than just a platform—it's a gateway to a world 
 
 Visit Us More : https://miracuves.com/
 
-Call Us For More Details:+919830009649
+Call Us For More Details:<a href="https://miracuves.com/"> +919830009649</a>
 
 Email Us :info@miracuves.com
